@@ -1,0 +1,3 @@
+- Hi, I’m @austincook
+- I’m interested in working with an innovative company that has a passion for what they do.
+- I'm recently graduated and can be reached at austin94cook@gmail.com.
